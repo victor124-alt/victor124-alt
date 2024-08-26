@@ -4,7 +4,7 @@
 
 ### Tenho 17 anos 🏍️
 
-### Estudo na escola (E.E.serra azul ) 
+### Estudo na escola (E.E.Serra Azul) 
 
 ### V+L ❤️
 
@@ -13,10 +13,10 @@
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo :mailbox
+### Você pode entrar em contato comigo 📫
 
 gmail
 
 @marcelopaludetto
 
-![descrição do GIF](link GIF do Tenor)
+![](https://tenor.com/pt-BR/view/minion-gif-25991360) 
